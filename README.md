@@ -1,7 +1,7 @@
 # Why is HBO MAX not Working?
 
 
-[![why is hbo max not working](redd.png)](https://github.com/techworkie/why.is.hbo.max.not.working)
+[![why is hbo max not working](redd.png)](https://icncomputer.com/why-is-hbo-max-not-working/)
 
 
 
